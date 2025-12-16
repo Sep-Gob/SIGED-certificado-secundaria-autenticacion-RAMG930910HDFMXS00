@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RAMG930910HDFMXS00
+RAMG930910HDFMXS00
